@@ -269,7 +269,8 @@ Aug 2017 – May 2021
 
 📧 **Email:** [vasu.rayudu023@gmail.com](mailto:vasu.rayudu023@gmail.com)
 
-📄 **Resume:** [)
+📄 **Resume:** [Github.com/vasurayudu023-del/RESUME/blob/main/Vasu_AI%20Engineer_Resume.pdf)
+
 ---
 
 # 🎯 Areas of Expertise
