@@ -269,6 +269,7 @@ Aug 2017 – May 2021
 
 📧 **Email:** [vasu.rayudu023@gmail.com](mailto:vasu.rayudu023@gmail.com)
 
+📄 **Resume:** [)
 ---
 
 # 🎯 Areas of Expertise
